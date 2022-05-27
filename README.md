@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Gwadagirl
-- JE SUIS iinteressée par la cryptomonnaie et la cybersécurité, hachinh ethique
-- 🌱 I’m currently learninga acomprendre Github
+- JE SUIS iinteressée par la cryptomonnaie et la cybersécurité, haching ethick grey
+- 🌱 I’m currently learninga acomprendre Github comprendre la programmation et le développement  
 
 - 💞️ I’m looking to collaborate on comment avoir plus de cryptos comment se protéger, protéger ses comptes et comment se défendre...
 - 📫 How to reach me ...sur Github ou me demander mon mail
